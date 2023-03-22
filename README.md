@@ -1,2 +1,0 @@
-# msnjslivety
-para todos
